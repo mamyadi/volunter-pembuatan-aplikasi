@@ -8,3 +8,4 @@ Silakan gunakan format berikut:<br>
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 * Imam Riyadi, [LinkedIn](https://www.linkedin.com/in/imam-riyadi-a6662424a/).
+* Ahmad Zaki, [LinkedIn](https://www.linkedin.com/in/ahmad-zaki-75a145277/).
